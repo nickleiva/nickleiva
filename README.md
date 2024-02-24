@@ -1,5 +1,5 @@
 # Sobre mí👨🏻‍💻:
-👨‍🎓Estudiante de Ciencias de la Educación<br>💻Desarrollador web Jr. en proceso<br>✏️Aprendiz de diseñador gráfico<br>🔫 CounterStrike2 y Valorant player<br>🐱 Me gustan los gatos
+👨‍🎓Estudiante de último año Ciencias de la Educación<br>💻Desarrollador web Jr. en proceso<br>✏️Aprendiz de diseñador gráfico<br>🔫 CounterStrike2 y Valorant player<br>🐱 Me gustan los gatos
 
 
 ## 🌐 Socials:
